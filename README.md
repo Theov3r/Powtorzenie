@@ -1,2 +1,1 @@
-# Powtorzenie
-# Powtorzenie
+
